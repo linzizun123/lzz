@@ -1,2 +1,0 @@
-# lzz
-work diary
